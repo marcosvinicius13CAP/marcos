@@ -10,7 +10,7 @@ atualmente toco violão porem ja toquei outros instrumentos como guitarra, baixo
 
 ![image](https://github.com/marcosvinicius13CAP/marcos/assets/146108436/c9e6c437-4d49-4bf4-904e-d425b9d49359)
 
-https://pin.it/2qDCuEL
+
 
 atualmente meu esporte favorito é a musculação na qual estou a 7 meses
 
